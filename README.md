@@ -2,7 +2,7 @@
 
 💼 **Current Role:** Bussines Analyst - Qaracter Academy
 
-<img width="1024" height="241" alt="Logo_Color_Dark-1024x241" src="https://github.com/user-attachments/assets/a4930f8c-8ce9-4b07-b153-87f9bbfca498" />
+<img width="512" height="120" alt="Logo_Color_Dark-1024x241" src="https://github.com/user-attachments/assets/a4930f8c-8ce9-4b07-b153-87f9bbfca498" />
 
 ---
 
