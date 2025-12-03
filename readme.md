@@ -10,7 +10,11 @@
 ## Techs I Use
 <img width="128" height="128" alt="5968350" src="https://github.com/user-attachments/assets/b0771756-7901-469a-be12-0f12a0c5d9f5" />
 
-![Uploading 5968350.png…]()
+<img width="128" height="128" alt="5968389" src="https://github.com/user-attachments/assets/d9b8052b-988e-4a7e-8783-b80f5304579b" />
+
+<img width="128" height="128" alt="381695" src="https://github.com/user-attachments/assets/7f94fd03-d620-4ff9-99e6-0d095d6c99b7" />
+
+<img width="128" height="128" alt="15455742" src="https://github.com/user-attachments/assets/e8559ce4-814a-439a-99ad-91306b12750c" />
 
 
 ---
